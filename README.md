@@ -15,8 +15,8 @@
 ---
 
 ## 📫 Cómo contactarme
-- 📧 Email: [tu-email@example.com]  
-- 💼 LinkedIn: [tu-linkedin]  
+- 📧 Email: [carlosqt.013@gmail.com]  
+- 💼 LinkedIn: [proximamente]  
 
 ---
 
